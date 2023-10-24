@@ -1,4 +1,3 @@
-# Habib Mohammed
 Raleigh 27606 | himohamm@ncsu.edu | (919)-348-7674
 Website: https://habib.github.io/   | Linkedin: https://www.linkedin.com/in/habibmohammed247/
 
